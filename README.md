@@ -1,2 +1,2 @@
-✴Ciao, sono Alessandra🌙
-✴Forse ho capito come funziona
+Ciao, sono Alessandra🌙
+Forse ho capito come funziona
